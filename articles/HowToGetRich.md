@@ -6,7 +6,7 @@ Naval had shared his thoughts about various topics.
 
 - How to get luck in the game. I guess there are three rules:
   1) always help other people as much as possible. And makes friends. 
-  2) have the independent thinking and good judgement for things around you.
+  2) have the independent thinking, be curious, and good judgement for things around you.
   3) work as hard as possible, and try as many things as possible.
 
 
