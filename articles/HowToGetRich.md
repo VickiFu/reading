@@ -13,5 +13,5 @@ Naval had shared his thoughts about various topics.
 
 - Reading and learning is the most correct way to prepare yourself to be rich. And math and logic thinking are the best tools to help hardworking people from ordinary family to reach the goal.
 
-Take risks under your own name and society will reward you with leverage. You need accountablity to get leverage. When you have a team, you need make sure everyone has the clear accountablity for something. but you want to stay out of labor-based leverage. Capital play well as the leverage in the last century, because it is easy to converted to labor and other things.  **Product and Media are the new leverage. **
+Take risks under your own name and society will reward you with leverage. You need accountablity to get leverage. When you have a team, you need make sure everyone has the clear accountablity for something. but you want to stay out of labor-based leverage. Capital play well as the leverage in the last century, because it is easy to converted to labor and other things.  **Product and Media are the new leverage in the Internet world**.
 
