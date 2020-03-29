@@ -19,5 +19,7 @@ The robot world is coming. AI hardly can achieve anything if they are not marrie
 
 The most sweet spot will be some product to fit the middle class need and hold the philosiphy about equal right for all human beings. Also you want to have the network affect, low marginal cost and scalibity.
 
-Judgement is the top priority to build your vision. Long term, linger one's desires, build to last. Top investors often sound like philosophers. Cost efficient daily decision makes if the value you brought is less few hundred dollars per hours, you should not do those work by yourself. **All your hours you shoulld spend on are building your product, finding product-market fit, exercising and eating healthy. That is all about it**.
+Judgement is the top priority to build your vision. Long term, linger one's desires, build to last. Top investors often sound like philosophers. Cost efficient daily decision makes if the value you brought is less few hundred dollars per hours, you should not do those work by yourself. **All your hours you shoulld spend on are building your product, finding product-market fit, exercising and eating healthy. That is all about it**. *The key to find founder-product-market fit for your business*. 
+
+
 
