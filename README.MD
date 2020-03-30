@@ -4,5 +4,7 @@ You will always fail with the time. If you didn’t reach the goal, you basicall
 
 So you don’t need feel scared of anything since you know the final result. But you can define the world with your own vision in the given time you have.
 
-
 I start to track what I read: short articles and books, and what I am thinking. If everyone is a unique Intelligent Model, it will be measured by the input and output. The input will be the information you consume, and the output is the logic you built and reflect on the work you have and the code you built.
+
+* [Books I read](Book_2020.md)
+* [Articles I read](Articles_2020.md)
