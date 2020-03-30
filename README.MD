@@ -8,3 +8,7 @@ I start to track what I read: short articles and books, and what I am thinking. 
 
 * [Books I read](Book_2020.MD)
 * [Articles I read](Articles_2020.MD)
+
+Thanks for your time.
+
+Vicky Fu
