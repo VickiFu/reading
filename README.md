@@ -10,6 +10,6 @@ I start to track what I read: short articles and books, and what I am thinking. 
 - [AI for Security](writing/AI_4_security_survey.md)
 
 ### Reading 
-* [Important Papaers](papers.md)
+* [Important Papers](papers.md)
 * [Books I read](Book_2020.md)
 * [Articles I read](Articles_2020.md)
