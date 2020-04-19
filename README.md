@@ -14,5 +14,4 @@ I start to track what I read: short articles and books, and what I am thinking. 
 * [Books I read](Book_2020.md)
 * [Articles I read](Articles_2020.md)
 
-
-Emma love Anna
+Anna Hsieh and Emma Hsieh
